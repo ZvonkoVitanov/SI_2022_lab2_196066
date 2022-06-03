@@ -1,1 +1,1 @@
-# SI_2022_lab2_196066
+Zvonko Vitanov 196066
